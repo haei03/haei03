@@ -5,3 +5,6 @@
 
 ╰⪼ Just for you ! ~ || -
 
+ ⁞ ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷ ⁞
+ 
+ ╰⪼ And I'm also interested in the following games such as : Genshin, Honkai Impact 3rd >> ZZZ ( that's it ~ )
